@@ -7,4 +7,6 @@
 ☆ If You want to Install This Click on This Below Link
  = https://www.mediafire.com/file/itgf46lmzi6n2k3/Kine_Master.apk/file
 
+<h1>So By This Easy Steps You Can Install This KineMster Pro App For Free</h1>
+
 
